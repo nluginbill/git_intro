@@ -1,1 +1,2 @@
 Nate Luginbill
+luginbin@oregonstate.edu
